@@ -1,4 +1,4 @@
-# 
+# VIP dexscreener sniper bot flujo de trabajo para Mac OS | Actualizado dexscreener sniper bot flujo de trabajo para PC Windows. Con subastas de gas prioritario y cálculo de ganancias — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
